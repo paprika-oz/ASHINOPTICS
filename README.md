@@ -1,1 +1,0 @@
-# ASHINOPTICS.github.io
